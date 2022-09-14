@@ -1,2 +1,0 @@
-# translater.github.io
-
